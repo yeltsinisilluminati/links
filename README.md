@@ -1,5 +1,7 @@
 Relevant social media links for music project Yeltsin Is Illuminati
 
+Bandcamp:
+https://yeltsinisilluminati.bandcamp.com/
 
 VK (Russian Facebook):
 https://vk.com/yeltsinisilluminati
@@ -13,5 +15,4 @@ https://www.instagram.com/yeltsinisilluminati/
 Spotify:
 https://open.spotify.com/artist/4c9NovthV554UiAveQz9JT
 
-Bandcamp:
-https://yeltsinisilluminati.bandcamp.com/
+Thank you for your interest!
