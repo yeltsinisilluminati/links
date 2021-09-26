@@ -1,4 +1,4 @@
-Relevant social media links for music project Yeltsin Is Illuminati
+Relevant social media links for the music project Yeltsin Is Illuminati
 
 Bandcamp:
 https://yeltsinisilluminati.bandcamp.com/
