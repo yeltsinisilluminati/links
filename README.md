@@ -15,4 +15,4 @@ https://www.instagram.com/yeltsinisilluminati/
 Spotify:
 https://open.spotify.com/artist/4c9NovthV554UiAveQz9JT
 
-Thank you for your interest!
+Thank you for your interest and have fun listening!
